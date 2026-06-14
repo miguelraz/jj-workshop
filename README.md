@@ -1,5 +1,7 @@
 #### Become a Jujutsu Master in 1 hour
 
+PROPAGATE ME
+
 <img width="1641" height="890" alt="image" src="https://github.com/user-attachments/assets/6e4449d2-2eea-44a1-9a87-b01293958df5" />
 
 
